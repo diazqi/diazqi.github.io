@@ -1,2 +1,0 @@
-# diazqi.github.io
-tugas
